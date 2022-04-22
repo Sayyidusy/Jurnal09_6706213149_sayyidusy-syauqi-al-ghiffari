@@ -1,0 +1,1 @@
+# Jurnal09_6706213149_sayyidusy-syauqi-al-ghiffari
